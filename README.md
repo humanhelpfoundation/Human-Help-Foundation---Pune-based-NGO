@@ -1,0 +1,2 @@
+# Human-Help-Foundation---Pune-based-NGO
+Human Help Foundation - Pune based NGO committed to bring happiness on every human's face. This NGO is on a mission to provide education, food &amp; health facility to everyone. We are a family, connected with each other through same-minded thoughts. What started as a wish is now a full-fledged organisation. The fundamental of our NGO is to serve the mankind in every possible way. Here is a brief introduction about our values, that we hold with integrity.
